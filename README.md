@@ -267,6 +267,10 @@ https://www.bbc.com/bitesize/subjects/z4dqxnb
 http://www.hispanoteca.eu/Gram%C3%A1ticas/GRAMMATIK%20SPANISCH.htm  
 https://www.thespanishexperiment.com/  
 
+### Short Stories
+
+https://www.fluentwithstories.com
+
 
 ### Verb conjugation
 
